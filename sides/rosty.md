@@ -16,3 +16,4 @@ Rosty is a delicious dish from the Italian and Spanish cuisine, easy and tasty, 
 2. Heat up the oil on a pan
 3. Mix potatoes and salt, then cook them on the pan
 
+Serve it on a dinner plate and cut your own slice!
